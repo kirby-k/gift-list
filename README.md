@@ -15,6 +15,7 @@
 ## Isabel's Wish List
 
 ### Small ($0 - $20)
+~Candy
 
 ### Medium ($20 - $50)
 
