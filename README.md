@@ -25,9 +25,13 @@
 
 - [Lip stain (Any color except for )](https://a.co/d/0eCzUr7)
 
+- [Puzzle glue](https://a.co/d/gFQ8L3k)
+
 ### Medium ($20 - $50)
 
 - Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee
+
+- Michael's craft store gift card
 
 ### Large ($50+)
 
