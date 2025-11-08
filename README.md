@@ -27,7 +27,7 @@
 
 ### Medium ($20 - $50)
 
-- [Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee]
+- Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee
 
 ### Large ($50+)
 
