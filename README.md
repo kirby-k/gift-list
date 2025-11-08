@@ -20,8 +20,15 @@
 ## Isabel's Wish List
 
 ### Small ($0 - $20)
-~Candy
+
+- [Cute stitch markers, there are so many different themes, anything that is cute I would use!](https://www.amazon.com/dp/B0CCP339HX?ref=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&ref_=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&social_share=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&titleSource=true)
+
+- [Lip stain (Any color except for )](https://a.co/d/0eCzUr7)
 
 ### Medium ($20 - $50)
 
+- [Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee]
+
 ### Large ($50+)
+
+- [Lego trees](https://a.co/d/caGHT4A)
