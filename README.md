@@ -3,7 +3,11 @@
 ## Christian's Wish List
 
 ### Small ($0 - $20)
-
+- Munchies (chip isle snack)
+- Interesting looking beer (Lagers, Pilseners, Wheat-related. No IPA / Pale)
+  - [Central Waters Honey Blonde Ale](https://www.totalwine.com/beer/ale/blonde-ale/american-blonde-ale/central-waters-honey-blonde-ale/p/227584122?s=1903&igrules=true)
+  - [New Glarus Two Women, in bottles](https://www.totalwine.com/beer/lager/german-pilsner/new-glarus-two-women-lager/p/197635126?s=1903&igrules=true)
+- [Lagunita Hop Water, Regular flavor](https://www.totalwine.com/beer/deals/non-alcoholic/specialty-beer/lagunitas-non-alcoholic-hoppy-refresher/p/351418121?s=1903&igrules=true)
 - Interesting looking coffee beans (No preference on roast or anything, the weirder the better)
 
 ### Medium ($20 - $50)
@@ -15,7 +19,7 @@
 ### Large ($50+)
 
 - [Aeropress Clear XL](https://a.co/d/9dK2npe)
-
+- [Trip to Faklandia Brewpub](https://faklandia.com/)
 
 ## Isabel's Wish List
 
