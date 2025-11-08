@@ -4,6 +4,8 @@
 
 ### Small ($0 - $20)
 
+- Interesting looking coffee beans (No preference on roast or anything, the weirder the better)
+
 ### Medium ($20 - $50)
 
 - [Pub Pass](https://getpubpass.com/)
