@@ -36,6 +36,8 @@
 - Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee
 
 - Michael's craft store gift card
+- [Coffee House Building Set](https://www.amazon.com/gp/product/B0D3L5RFND?smid=A2JQ6QM1T4G8EO&psc=1)
+  - On sale now!
 
 ### Large ($50+)
 
