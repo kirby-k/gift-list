@@ -12,33 +12,23 @@
 
 ### Medium ($20 - $50)
 
-- [Pub Pass](https://getpubpass.com/)
 - Steam Gift Card (Found at retail stores)
-- [Smart Bulbs](https://www.amazon.com/gp/product/B0BHS2JFZC?smid=AN2F5KYPBB6KO&th=1)
-
-### Large ($50+)
-
-- [Aeropress Clear XL](https://a.co/d/9dK2npe)
-- [Trip to Faklandia Brewpub](https://faklandia.com/)
+- [All Edges Brownie Pan](https://www.amazon.com/gp/product/B08B5XRJZB?smid=A2RR3KPJ7R40TF&psc=1)
 
 ## Isabel's Wish List
 
 ### Small ($0 - $20)
 
 - [Cute stitch markers, there are so many different themes, anything that is cute I would use!](https://www.amazon.com/dp/B0CCP339HX?ref=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&ref_=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&social_share=cm_sw_r_cso_cp_apan_dp_TE8RH5ZFF458NWDPX41X&titleSource=true)
-
-- [Lip stain (Any color except for )](https://a.co/d/0eCzUr7)
-
+- [Lip stain (Any color except for ones I already have)](https://a.co/d/0eCzUr7)
+  - I already have these ones:
+    - $70 (Crimson Glory)
+    - #15 (Epic)
 - [Puzzle glue](https://a.co/d/gFQ8L3k)
 
 ### Medium ($20 - $50)
 
-- Bubble tea gift card, we like Bubblelicious in Southridge mall or Vida Boba Cafe in Milwaukee
-
+- Bubble tea gift card, we like [Tanpopo](https://tanpoporamen.com/gift-cards) and [Uni Uni](https://maps.app.goo.gl/Y9jvFpQDDoAoa7mY9)
 - Michael's craft store gift card
 - [Coffee House Building Set](https://www.amazon.com/gp/product/B0D3L5RFND?smid=A2JQ6QM1T4G8EO&psc=1)
-  - On sale now!
-
-### Large ($50+)
-
-- [Lego trees](https://a.co/d/caGHT4A)
+- [Ravensburger Magical Potions Puzzle](https://www.amazon.com/gp/product/B08T9CWXNL?smid=A17HLBEV51V41W&th=1)
