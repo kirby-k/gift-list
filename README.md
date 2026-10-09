@@ -19,24 +19,24 @@
   - This let's Isabel and I go on pub dates around Milwaukee!
 - Steam Gift Card (Found at retail stores)
   - These are used to purchase video games!
-- Camping Headlamp
-  - It would be super useful to have a flashlight on my head
-  - Any brand is fine, as long as it has a **red light** mode, it's good!
 - Small, ultralight camping table
+  - Ultralight gear is typically a few pounds at most, the lighter the better!
 
 ## Isabel's Wish List
 
 ### $0 - $25
 
-- 
+- Lays Baked Chips
+- Mochi Ice Cream - Mango Flavor
+  - The brand we usually get is "My Mochi"
+- Puzzles
+  - [Magical Potions](https://www.amazon.com/gp/product/B08T9CWXNL?smid=A17HLBEV51V41W&th=1)
+  - [Aurora Borealis](https://a.co/d/0fjbDLNI)
 
  ### $25+
 
 - Lego Buildables
-  - [Space Frame](https://www.amazon.com/gp/product/B0G52QYNX3?smid=AXH3603NRLPCM&th=1)
-  - [Moon Palace](https://www.amazon.com/gp/product/B0FLVJBXH8?smid=A3OTOXTN04KYNO&psc=1)
-  - 
-
+  - [Botanical Bonsai Tree](https://www.amazon.com/gp/product/B0DRW8G3WK?smid=ATVPDKIKX0DER&psc=1)
 - Gift Cards
   - Bubble tea gift card, we like [Tanpopo](https://tanpoporamen.com/gift-cards) and [Uni Uni](https://maps.app.goo.gl/Y9jvFpQDDoAoa7mY9)
   - Michael's craft store
