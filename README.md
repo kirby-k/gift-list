@@ -14,7 +14,6 @@
   - Individual packs can be found at some retail stores
 
 ### $25+
-
 - [Pub Pass](https://getpubpass.com/)
   - This let's Isabel and I go on pub dates around Milwaukee!
 - Steam Gift Card (Found at retail stores)
@@ -26,16 +25,11 @@
 ## Isabel's Wish List
 
 ### $0 - $25
-
 - Lays Baked Chips
 - Mochi Ice Cream - Mango Flavor
   - The brand we usually get is "My Mochi"
-- Puzzles
-  - [Magical Potions](https://www.amazon.com/gp/product/B08T9CWXNL?smid=A17HLBEV51V41W&th=1)
-  - [Aurora Borealis](https://a.co/d/0fjbDLNI)
 
  ### $25+
-
 - Lego Buildables
   - [Space Frame](https://www.amazon.com/gp/product/B0G52QYNX3?smid=AXH3603NRLPCM&th=1)
   - [Moon Palace](https://www.amazon.com/gp/product/B0FLVJBXH8?smid=A3OTOXTN04KYNO&psc=1)
